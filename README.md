@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Amiknir
-- 👀 I’m interested in rockets
+- 👀 I’m interested in AI
 - 🌱 I’m currently learning something new
 - 💞️ I’m looking to collaborate someday
 - 📫 How to reach me-call me! 
